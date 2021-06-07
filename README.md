@@ -1,10 +1,14 @@
-→ Hi, I’m @AlbertoCalderonRivas 
+→ Hi, I’m @AlbertoCalderonRivas
+
    █║▌│ █│║▌ ║││█║▌ │║║█║ │║║█║
+
 
 → How to reach me:
 
-Email: albertocalderonrivas@gmail.com 
+Email: albertocalderonrivas@gmail.com
+
 IG: @azufre_rosa 
+
 
 → Videos of my projects:
 
