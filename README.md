@@ -7,7 +7,7 @@
 
 Email: albertocalderonrivas@gmail.com
 
-IG: @azufre_rosa 
+IG: @calde_core 
 
 
 → Videos of my projects:
